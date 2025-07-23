@@ -1,1 +1,2 @@
 Education Details
+Bsc.IT
